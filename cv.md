@@ -1,3 +1,19 @@
+# Alexey Rozhkov
+
+### CONTACTS
+- Phone: **+7(903)8947970**
+- E-mail: **<x-com_l@tut.by>**
+- GitHub: **<https://github.com/Aleksei-Rozhkou>**
+
+---
+
+### SUMMARY
+
+- JavaScript Frontend developer. I really like programming and everything related to it.
+I want to get a job from you in order to develop and learn new aspects and programming languages. He is very diligent and purposeful. I like to communicate and find non-standard ways to solve problems. I will be glad to cooperate with you.
+
+---
+
 ### SKILLS
 
 - I am taking preparatory courses at School on JavaScript Front-end developer.
