@@ -2,7 +2,7 @@
 
 ### CONTACTS
 - Phone: **+7(903)8947970**
-- E-mail: **<x-com_l@tut.by>**
+- E-mail: **<iprozhkoff@mail.ru>**
 - GitHub: **<https://github.com/Aleksei-Rozhkou>**
 
 ---
