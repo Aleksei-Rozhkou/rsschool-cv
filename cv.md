@@ -83,11 +83,11 @@ Meeting of buyers, consultations on goods and services, in particular tinting of
 
 
 
- ###Key skills
+## Key skills
 Responsibility
 Experience in the field of procurement for 9 years, before that, administration and management in the field of restaurant business.
 A confident PC user, working with 1C and many other programs and resources.
 
--sDriving experience
-There is a private car
-Rights of category A, B 
+-Driving experience 15 y.o.
+-There is a private car
+-Rights of category A, B 
