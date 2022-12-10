@@ -80,10 +80,14 @@ Communicating with guests, booking tables, making orders for birthdays and weddi
 LLC " Eurostyle Company"
 Sales consultant
 Meeting of buyers, consultations on goods and services, in particular tinting of paints and measurements of windows
-Key skills
+
+
+
+ ###Key skills
 Responsibility
 Experience in the field of procurement for 9 years, before that, administration and management in the field of restaurant business.
 A confident PC user, working with 1C and many other programs and resources.
-Driving experience
+
+-sDriving experience
 There is a private car
-Rights of category A, B
+Rights of category A, B 
