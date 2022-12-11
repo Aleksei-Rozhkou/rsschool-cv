@@ -89,5 +89,7 @@ Experience in the field of procurement for 9 years, before that, administration 
 A confident PC user, working with 1C and many other programs and resources.
 
 -Driving experience 15 y.o.
+
 -There is a private car
+
 -Rights of category A, B 
